@@ -8,7 +8,6 @@
 
 
 
-
 sou br, gratidao
 
 
@@ -40,7 +39,7 @@ So people who know me are not too shocked and surprised
 When suddenly I am old, and start to wear purple."
 
 
-um poema maneiro, que eu gosto\
+um pequeno poema, que pode refletir uma parte do que penso.
 
 
 <!---
