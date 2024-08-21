@@ -36,7 +36,7 @@ We must have friends to dinner and read the papers.
 
 But maybe I ought to practise a little now?
 So people who know me are not too shocked and surprised
-When suddenly I am old, and start to wear purple."
+When suddenly I am old, and start to wear purple." - Jenny Joseph.
 
 
 um pequeno poema, que pode refletir uma parte do que penso.
