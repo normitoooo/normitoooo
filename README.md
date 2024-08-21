@@ -5,6 +5,10 @@
 - 📫 How to reach me ... insta: @pointredow
 - 😄 Pronouns: ... ele-dele
 - ⚡ Fun fact: ... eu amo minhas gatas, mais que minha própria vida
+
+
+
+
 sou br, gratidao
 <!---
 normitoooo/normitoooo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
